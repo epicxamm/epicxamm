@@ -1,16 +1,19 @@
-## Hi there 👋
+> 𝚑𝚎𝚢! 𝚒 𝚊𝚝𝚎 𝚠𝚒𝚏𝚒𝚎𝚜 𝚑𝚘𝚞𝚜𝚎. 
 
-<!--
-**epicxamm/epicxamm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+> 𝚗𝚘𝚛𝚖ᥲ𝚕𝚕𝚢 𝚒𝚗 𝚐𝚝𝚌𝚜, 𝚑𝚊𝚗𝚐𝚘𝚞𝚝,𝚏𝚝𝚜,𝖿𝚜𝚛
 
-Here are some ideas to get you started:
+> 𝚠𝚘𝚗𝚝 𝚜𝚎𝚎 𝚖𝚎 𝚒𝚗 𝚛𝚙𝚜 𝚞𝚗𝚕𝚎𝚜𝚜 𝚜𝚙𝚎𝚌/𝚠𝚒𝚝𝚑 𝚏𝚛𝚒𝚎𝚗𝚍𝚜
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+> 𝚜𝚞𝚋𝚜𝚌𝚛𝚒𝚋𝚎 𝚝𝚘 deepfriedegg! https://youtube.com/@deepfriedegg?si=dILyTYHKW-1dPiVI
+
+
+
+
+*✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:✼ •• ┈┈┈┈๑⋅⋯ ୨˚୧ ⋯⋅๑┈┈┈┈ •• ✼✰⋆｡:ﾟ･*☽:ﾟ･⋆｡✰⋆｡:ﾟ･*☽:ﾟ･⋆｡✰⋆｡:ﾟ･*☽
+    ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
+
+- currently working on my evo cosplay/tippss
+
+- if you see me, feel free to c+h and int!
+
+✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿
