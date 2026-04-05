@@ -6,14 +6,14 @@
 
 > 𝚜𝚞𝚋𝚜𝚌𝚛𝚒𝚋𝚎 𝚝𝚘 deepfriedegg! https://youtube.com/@deepfriedegg?si=dILyTYHKW-1dPiVI
 
-
+> 𝚜𝚞𝚋𝚜𝚌𝚛𝚒𝚋𝚎 𝚝𝚘 Xxliyah!      https://youtube.com/@xxliyah?si=6Rbvo0bojWA0ssAI
 
 
 *✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:✼ •• ┈┈┈┈๑⋅⋯ ୨˚୧ ⋯⋅๑┈┈┈┈ •• ✼✰⋆｡:ﾟ･*☽:ﾟ･⋆｡✰⋆｡:ﾟ･*☽:ﾟ･⋆｡✰⋆｡:ﾟ･*☽
     ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
-- currently working on my evo cosplay/tippss
+- 𝚒 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚘𝚔𝚊𝚢?.. 
 
-- if you see me, feel free to c+h and int!
+- 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎, 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚌+𝚑 𝚊𝚗𝚍 𝚒𝚗𝚝! 
 
 ✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿
