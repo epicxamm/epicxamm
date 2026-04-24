@@ -4,9 +4,9 @@
 
 > 𝚠𝚘𝚗𝚝 𝚜𝚎𝚎 𝚖𝚎 𝚒𝚗 𝚛𝚙𝚜 𝚞𝚗𝚕𝚎𝚜𝚜 𝚜𝚙𝚎𝚌/𝚠𝚒𝚝𝚑 𝚏𝚛𝚒𝚎𝚗𝚍𝚜
 
-> 𝚜𝚞𝚋𝚜𝚌𝚛𝚒𝚋𝚎 𝚝𝚘 deepfriedegg! https://youtube.com/@deepfriedegg?si=dILyTYHKW-1dPiVI
+>https://youtube.com/@deepfriedegg?si=dILyTYHKW-1dPiVI
 
-> 𝚜𝚞𝚋𝚜𝚌𝚛𝚒𝚋𝚎 𝚝𝚘 Xxliyah!      https://youtube.com/@xxliyah?si=6Rbvo0bojWA0ssAI
+>https://youtube.com/@xxliyah?si=6Rbvo0bojWA0ssAI
 
 
 *✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:✼ •• ┈┈┈┈๑⋅⋯ ୨˚୧ ⋯⋅๑┈┈┈┈ •• ✼✰⋆｡:ﾟ･*☽:ﾟ･⋆｡✰⋆｡:ﾟ･*☽:ﾟ･⋆｡✰⋆｡:ﾟ･*☽
