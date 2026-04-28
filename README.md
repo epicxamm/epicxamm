@@ -1,3 +1,10 @@
+‘𝚍𝚒𝚍 𝚢𝚘𝚞 𝚜𝚎𝚎–’
+‘–𝚝𝚑𝚎 𝚠𝚊𝚝𝚎𝚛–’
+‘–𝚕𝚒𝚔𝚎 𝚒𝚝 𝚐𝚛𝚊𝚋𝚋𝚎𝚍 𝚑𝚎𝚛–’
+
+
+
+
 > 𝚑𝚎𝚢! 𝚒 𝚊𝚝𝚎 𝚠𝚒𝚏𝚒𝚎𝚜 𝚑𝚘𝚞𝚜𝚎. 
 
 > 𝚒 𝚙𝚛𝚎𝚏𝚎𝚛 𝚐𝚘𝚒𝚗𝚐 𝚋𝚢 𝚙𝚎𝚝𝚎𝚛 𝚋𝚢 𝚘𝚝𝚑𝚎𝚛𝚜, 𝚋𝚞𝚝 𝚊𝚙𝚙𝚕𝚎 𝚒𝚜 𝚏𝚒𝚗𝚎 𝚝𝚘𝚘 
@@ -50,3 +57,11 @@
 ^ 𝚎𝚙𝚒𝚌 𝚝𝚑𝚎 𝚖𝚞𝚜𝚒𝚌𝚊𝚕
 
 ^ 𝚎𝚐𝚐 𝚗𝚍 𝚕𝚒𝚢𝚊𝚑 𝚛 𝚖𝚢 𝚌𝚘𝚖𝚏𝚜❤❤
+
+
+
+
+
+
+
+I'm sorry I shouldn't have raised my voice you're right I'm not being for please just see from my perspective I can come with you but I can't sit aside while you end yourself over nothing I'm sorry please respond.
