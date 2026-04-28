@@ -1,6 +1,4 @@
-‘𝚍𝚒𝚍 𝚢𝚘𝚞 𝚜𝚎𝚎–’
-‘–𝚝𝚑𝚎 𝚠𝚊𝚝𝚎𝚛–’
-‘–𝚕𝚒𝚔𝚎 𝚒𝚝 𝚐𝚛𝚊𝚋𝚋𝚎𝚍 𝚑𝚎𝚛–’
+‘–𝚑𝚎𝚛 𝚕𝚘𝚟𝚎 𝚒𝚜 𝚒𝚗 𝚖𝚢 𝚑𝚎𝚊𝚍.’
 
 
 
@@ -64,4 +62,5 @@
 
 
 
-I'm sorry I shouldn't have raised my voice you're right I'm not being for please just see from my perspective I can come with you but I can't sit aside while you end yourself over nothing I'm sorry please respond.
+𝙸'𝚖 𝚜𝚘𝚛𝚛𝚢 𝙸 𝚜𝚑𝚘𝚞𝚕𝚍𝚗'𝚝 𝚑𝚊𝚟𝚎 𝚛𝚊𝚒𝚜𝚎𝚍 𝚖𝚢 𝚟𝚘𝚒𝚌𝚎 𝚢𝚘𝚞'𝚛𝚎 𝚛𝚒𝚐𝚑𝚝 𝙸'𝚖 𝚗𝚘𝚝 𝚋𝚎𝚒𝚗𝚐 𝚏𝚘𝚛 𝚙𝚕𝚎𝚊𝚜𝚎 𝚓𝚞𝚜𝚝 𝚜𝚎𝚎 𝚏𝚛𝚘𝚖 𝚖𝚢 𝚙𝚎𝚛𝚜𝚙𝚎𝚌𝚝𝚒𝚟𝚎 𝙸
+𝚌𝚊𝚗 𝚌𝚘𝚖𝚎 𝚠𝚒𝚝𝚑 𝚢𝚘𝚞 𝚋𝚞𝚝 𝙸 𝚌𝚊𝚗'𝚝 𝚜𝚒𝚝 𝚊𝚜𝚒𝚍𝚎 𝚠𝚑𝚒𝚕𝚎 𝚢𝚘𝚞 𝚎𝚗𝚍 𝚢𝚘𝚞𝚛𝚜𝚎𝚕𝚏 𝚘𝚟𝚎𝚛 𝚗𝚘𝚝𝚑𝚒𝚗𝚐 𝙸'𝚖 𝚜𝚘𝚛𝚛𝚢 𝚙𝚕𝚎𝚊𝚜𝚎 𝚛𝚎𝚜𝚙𝚘𝚗𝚍.
